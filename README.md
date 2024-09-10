@@ -6,4 +6,4 @@
 Social Media
 1. Facebook
 2. Discord
-[](https://images.app.goo.gl/uXR2ybPppCVhMbQr5)
+3. ![](https://images.app.goo.gl/uXR2ybPppCVhMbQr5)
