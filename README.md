@@ -3,3 +3,7 @@
 ### *Nathan* Gabriele A. Ngo
 >San Roque, Iriga City
 ---
+Social Media
+Facebook
+Discord
+Mobile Legend acc
