@@ -4,7 +4,5 @@
 >San Roque, Iriga City
 ---
 Social Media
-1. Facebook
-2. Discord
 ![](https://www.peakpx.com/en/search?q=pokemon+pikachu+digital)
 
