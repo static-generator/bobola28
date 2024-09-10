@@ -6,5 +6,5 @@
 Social Media
 1. Facebook
 2. Discord
-![](https://images.app.goo.gl/m9T7mcMRGonz8YGeA)
+[](https://static.wikia.nocookie.net/jujutsu-kaisen/images/5/5a/Satoru_Gojo_arrives_on_the_battlefield_%28Anime%29.png/revision/latest?cb=20210226205256)
 
