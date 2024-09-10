@@ -4,5 +4,5 @@
 >San Roque, Iriga City
 ---
 Social Media
--(Facebook)
--(Discord)
+1. Facebook
+2. Discord
